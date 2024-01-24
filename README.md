@@ -1,4 +1,4 @@
-# Oryantasyon-Final-Odevi-
+# Oryantasyon-Final-Odevi
 Fırat Üniversitesi Berat Doğan Yazılım Mühendisliği Gece 1-B OgrenciNo: 235541062
 Youtube Video Linki: https://www.youtube.com/watch?v=Ymg826oNh18&ab_channel=BeratDo%C4%9Fan
 
